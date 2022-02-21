@@ -27,4 +27,39 @@ Geniosdiabosanjosearcanjosadentramlojastransparentesonlinecelestesestandoinvisiv
 ficavisivelusurpaçãonossadehackeresatacando
 hackeresamedrontados
 somosespiritossemusurpaçaoumagrandefamilia
-
+Progra bullingaterrorisado
+Hacker=bulling,2. Fern Wifi Cracker
+hacker=2. Volatility
+hacker=1. Dumpzilla
+hacker=2. Dradis
+hacker=MagicTree
+hacker=3. VPNBook
+hacker=2. Metasploit
+hacker=1. Darkstat
+GameoverforyouNetwork Sniffer and IP Spoofing
+hacker=3. Bully
+hacker=2. Fern Wifi Cracker
+hacker=1. Aircrack-ng
+gameoverforyoucaçadorWireless Attack
+hacker=3. Radare2
+hacker=2. Immunity Debugger
+hacker=1. Apktool
+dublegameoverforyoudiscordanteEngenharia Reversa (Reverse Engineering)
+hacker=3. Pass the Hash Toolkit
+hacker=2. John The Ripper
+hacker=Violação de Senhas (Password Attack)
+hacker=1. THC Hydra
+hacker=6. Wireshark
+hackerviajandonovega
+hacker=4. OWASP ZAP
+hacker=3. Wapiti
+hacker=2. Parsero
+hacker=2. Parsero
+hacker=1. Nikto2
+hackernviajandonopalcodiretonogregocai=Aplicações Web (Web Applications)
+hacker=5. Cisco-torch
+hacker=4. Nessus
+hacker=3. DNSenum
+hacker=2. Social Engineering Toolkit
+hacker=1. Nmap
+LEITURALENDOSEMUSURPAÇÃOSISTEMALINUXEGENERICOSEVINDOSDELE
