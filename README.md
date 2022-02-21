@@ -17,7 +17,12 @@ Ta tudo tão quietinho
 -Vou dar uma saidinha .
 -nao perdoo os mormons, sao uns cocos, usaram a venda uma vez minha pelo mercado livre e agora usam japoneses com chantagem espiritual nao apareça meu celular e não adentre o mercado livre
 -sou intelihente e os meus inimigos não me enganam, Deus derruba todos eles porque lbgtq+ é coisa com divino também.
-
-
+Hackers=demonios fome
 -Qd a internet vai faturar um salário pra mim e familia? Quando vai virar minha miga?
 https://www.magazinevoce.com.br/magazine99075322angelica/
+https://www.parceiromagalu.com.br/magazine99075322angelica/urna-de-madeira-para-cinzas-upgrade-marcenaria/p/ckd20k34db/RC/RCNM/?utm_source=99075322angelica&utm_medium=urna-de-madeira-para-cinzas-upgrade-marcenaria&utm_campaign=copy-paste&utm_content=copy-paste-share
+Satanasadentramlojastransparentesecelestesinvisiveis
+Geniosdiabosanjosearcanjosadentramlojastransparentesonlinecelestesestandoinvisiveis
+éhorapassaosacolãopretobrancoamareloveremelhoecorderosaroubatudoquepodecarregar
+ficavisivelusurpaçãonossadehackeresatacando
+hackeresamedrontados
