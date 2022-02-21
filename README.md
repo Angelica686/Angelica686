@@ -63,3 +63,6 @@ hacker=3. DNSenum
 hacker=2. Social Engineering Toolkit
 hacker=1. Nmap
 LEITURALENDOSEMUSURPAÇÃOSISTEMALINUXEGENERICOSEVINDOSDELE
+demoniofometafazendoafestinhatasedivertindo
+Euaranhapassei
+euaranhaminusculadepernasfinaspassando
