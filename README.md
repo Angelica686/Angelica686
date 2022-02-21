@@ -8,11 +8,14 @@
 Angelica686/Angelica686 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Ta tudo tão quietinho.
+Ta tudo tão quietinho
+
 -😎 Que legal.
 -🥧🥧🌮🥗🍟🍕🍕🍔 Nossa que fome de leoa.
 - To o bicho sendo caça, imagina eu caçando.
 -🚗🚗Sou o bicho sendo caça imagina eu caçando.
 -Vou dar uma saidinha .
--(❁´◡`❁)(❁´◡`❁)Que dia ! não saiu uma venda se quer.
--
+
+
+-Qd a internet vai faturar um salário pra mim e familia? Quando vai virar minha miga?
+https://www.magazinevoce.com.br/magazine99075322angelica/
