@@ -13,3 +13,6 @@ Ta tudo tão quietinho.
 -🥧🥧🌮🥗🍟🍕🍕🍔 Nossa que fome de leoa.
 - To o bicho sendo caça, imagina eu caçando.
 -🚗🚗Sou o bicho sendo caça imagina eu caçando.
+-Vou dar uma saidinha .
+-(❁´◡`❁)(❁´◡`❁)Que dia ! não saiu uma venda se quer.
+-
