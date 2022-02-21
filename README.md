@@ -15,6 +15,8 @@ Ta tudo tão quietinho
 - To o bicho sendo caça, imagina eu caçando.
 -🚗🚗Sou o bicho sendo caça imagina eu caçando.
 -Vou dar uma saidinha .
+-nao perdoo os mormons, sao uns cocos, usaram a venda uma vez minha pelo mercado livre e agora usam japoneses com chantagem espiritual nao apareça meu celular e não adentre o mercado livre
+-sou intelihente e os meus inimigos não me enganam, Deus derruba todos eles porque lbgtq+ é coisa com divino também.
 
 
 -Qd a internet vai faturar um salário pra mim e familia? Quando vai virar minha miga?
